@@ -1,1 +1,0 @@
-# mythologic.xyz
